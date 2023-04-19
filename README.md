@@ -1,0 +1,2 @@
+# brightbomber
+fuck TN
